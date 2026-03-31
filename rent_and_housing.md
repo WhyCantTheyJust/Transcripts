@@ -1,4 +1,4 @@
-# Episode on the housing and rent
+# Episode on housing and rent
 [link to podcast](https://open.spotify.com/episode/2PdSyKEWclloXFZj5Dyeak?si=pkYRvIzNQcafTgVfVXtVdQ) 
 
 ## Transcript
