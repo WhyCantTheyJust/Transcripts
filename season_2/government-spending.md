@@ -1,4 +1,4 @@
-# Episode on government expenditure
+# Episode on government spending
 [link to podcast](https://open.spotify.com/episode/0azRoiMpRBlVmIVUzM9yYj?si=IDqpU4DTSf2b1NQ6QNPA5g) 
 
 ## Transcript
