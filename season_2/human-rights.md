@@ -28,7 +28,7 @@ If their mothers are found to have committed crimes, then they should go through
 
 The worst terrorist attack on Australian soil occurred in Bondi in December 2025, when fifteen people were killed by two gunmen. That was an absolutely shocking and tragic event. The worst terrorist attack committed against Australians was in Bali in 2012, when over 200 people were killed when a nightclub was bombed. That was a deliberate attack against Australians. So stopping people from coming to Australia doesn’t necessarily stop them from hurting Australians.
 
-So this idea of conditional citizenship is also highly problematic. Why is that? Well, because if you’re an Australian citizen, you’re an Australian citizen. 
+The other thing is that this idea of conditional citizenship is also highly problematic. Why is that? Well, because if you’re an Australian citizen, you’re an Australian citizen. 
 
 I think it is very reasonable for the Australian government, as it does, to require people wanting to come to Australia on visas to agree to uphold Australian values, which are listed on the Department of Home Affairs website and which talk about things like compassion, and non-discrimination and supporting democratic values. But, once you become an Australian citizen, you are an Australian citizen. It doesn’t matter where you come from. It doesn’t matter what your ethnic background is. And it doesn’t matter what anybody else who shares that ethnic background, language, history, or cultural background or religion ever does. That should not affect your right to be an Australian citizen.
 
